@@ -1,3 +1,5 @@
+EDA Project 
+
 When I was studying architecture I did this project on Detroit (this was circa 2011): a case study on urban planning and ruin.
 It’s an amazing city to study for it’s story, surroundings, social and racial intricancies, industry, etc., but also for the civic engagement in what next will happen with the city.
 
